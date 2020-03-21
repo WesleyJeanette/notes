@@ -1,3 +1,10 @@
+# 2020
+* Educated by Tara Westover
+* Angel by Jason Calacanis
+* Dare to Lead by Brene Brown
+* Drive by Daniel Pink
+* Tribal Leadership by John King...
+
 # 2019
 * Life After Google by George Gilcer
 * The House of Morgan by Ron Chernow
