@@ -6,6 +6,7 @@
 * Tribal Leadership by John King...
 
 # 2019
+* The Power Broker by Robert Caro
 * Life After Google by George Gilcer
 * The House of Morgan by Ron Chernow
 * Billion Dollar Whale by Bradly Hope, Tom Wright
